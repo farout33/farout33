@@ -1,4 +1,6 @@
-![image](https://user-images.githubusercontent.com/94708398/152851603-71c43803-c479-4456-b44e-029994d7e001.png)
+![dd8f2fff7569e32d8cedc9344c6aa772_preview_rev_1](https://user-images.githubusercontent.com/94708398/153244708-2a53998c-9f34-4ed4-9418-708d124b70cc.png)
+
+
 
 <!--
 **farout33/farout33** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
