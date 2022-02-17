@@ -1,4 +1,4 @@
-![dd8f2fff7569e32d8cedc9344c6aa772_preview_rev_1](https://user-images.githubusercontent.com/94708398/153244708-2a53998c-9f34-4ed4-9418-708d124b70cc.png)
+![No me preguntes, solo soy una chica](https://user-images.githubusercontent.com/94708398/154524711-f13fdec1-6e7a-4728-a760-b21788dd3a92.png)
 
 
 
