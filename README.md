@@ -1,4 +1,4 @@
-![No me preguntes, solo soy una chica](https://user-images.githubusercontent.com/94708398/154524711-f13fdec1-6e7a-4728-a760-b21788dd3a92.png)
+![kowal](https://user-images.githubusercontent.com/94708398/174440378-59298b1c-d601-48f7-a0a7-1ca8ab9a0f5f.png)
 
 
 
